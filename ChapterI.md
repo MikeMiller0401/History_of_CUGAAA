@@ -6,9 +6,13 @@
 由于时代过于久远，2013年之前的社团历史目前无法很好地还原和追溯，仅提供给大家一些目前收集的影像资料。
 
 ![Chapter1Photo1](./Images/C1P1.jpg "Chapter1Photo1")
+![Chapter1Photo2](./Images/C1P2.jpg "Chapter1Photo2")
+![Chapter1Photo3](./Images/C1P3.jpg "Chapter1Photo3")
+![Chapter1Photo4](./Images/C1P4.jpg "Chapter1Photo4")
 
-2014年3月15日，你协官方交流群地大司天台建立
+2014年3月15日，你协官方交流群 **地大司天台** 建立
 
 2014年11月，武天联一代目
+
 
 ## （施工中）
